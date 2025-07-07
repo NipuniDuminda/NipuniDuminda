@@ -1,4 +1,4 @@
-# Nipuni Duminda
+# Duminda A.K.N.
 ## **Name** : Duminda A.K.N.
 ## **Email** :  dumindanipuni@gmail.com
 ## **Adress** : "Singhagiri",Yatiyana,Matara
