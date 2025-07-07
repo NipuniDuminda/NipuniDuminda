@@ -1,5 +1,5 @@
 # Nipuni Duminda
-## **Name** : Nipuni Duminda
+## **Name** : Duminda A.K.N.
 ## **Email** :  dumindanipuni@gmail.com
 ## **Adress** : "Singhagiri",Yatiyana,Matara
 ## About me
